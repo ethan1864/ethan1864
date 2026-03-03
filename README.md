@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ethan1864
-- 👀 I’m interested in codeing
+- 👀 I’m interested in coding
 - 📫 How to reach me ethansepicvideos@gmail.com
 
 <!---
